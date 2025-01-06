@@ -1,4 +1,4 @@
-### Hi there 👋, MD Alif Islam
+### Hi there 👋, I am Alif Islam
 #### Aspiring Python Developer | Passionate Programmer | Building Solutions with Clean Code | Future Tech Leader
 ![Aspiring Python Developer | Passionate Programmer | Building Solutions with Clean Code | Future Tech Leader](https://media.licdn.com/dms/image/v2/D4E16AQGY_x-J6eD8WQ/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1735108364418?e=1741219200&v=beta&t=OhLPPqtrc9UZOf2McBQ-gHGnTxQ97HyCSEHcBwHvAws)
 
